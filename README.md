@@ -11,13 +11,13 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-617.pages.dev/">91黑</a>
+点击访问：<a href="https://hj-617.pages.dev/">访问入口</a>
 
 点击访问：<a href="https://hj-624.pages.dev/">91吃瓜</a>
 
-点击访问：<a href="https://hj-635.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://hj-635.pages.dev/">海角</a>
 
-点击访问：<a href="https://hj-659.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://hj-659.pages.dev/">51视频</a>
 
 点击访问：<a href="https://hj-678.pages.dev/">黑料网</a>
 
@@ -29,15 +29,15 @@
 
 点击访问：<a href="https://hj-792.pages.dev/">黑料网</a>
 
-点击访问：<a href="https://hj-786.pages.dev/">海角社区</a>
+点击访问：<a href="https://hj-786.pages.dev/">91视频-海角</a>
 
-点击访问：<a href="https://hj-777.pages.dev/">91视频</a>
+点击访问：<a href="https://hj-777.pages.dev/">海角论坛 </a>
 
-点击访问：<a href="https://hj-765.pages.dev/">分享永不</a>
+点击访问：<a href="https://hj-765.pages.dev/">吃瓜嫂子</a>
 
 点击访问：<a href="https://hj-760.pages.dev/">黑料网</a>
 
-点击访问：<a href="https://hj-735.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-735.pages.dev/">软件导航</a>
 
 点击访问：<a href="https://hj-721.pages.dev/">吃瓜</a>
 
@@ -60,4 +60,4 @@ Telegram频道传送门：汇集优质频道链接，涵盖黑料爆料、吃瓜
 
 《黑料大事记》专注整理娱乐圈与网络红人爆料事件，涵盖时间线、人物背景与舆论发展，帮助用户快速了解每起黑料的真相，全方位追踪热议焦点。
 
-[Canonical link](）
+[Canonical link](https://github.com/heiliaowang598/heiliaowang78362）
